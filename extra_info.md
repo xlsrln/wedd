@@ -6,8 +6,10 @@ Lyran is a mid-1800s villa south of Stockholm which is nowadays run as a restaur
 
 To see pictures and read more: [page on visit stockholm](https://www.visitstockholm.com/o/konditori-lyran/)
 
+<img src="https://www.visitstockholm.com/media/images/lyran_oredigerad.width-1280.jpg" alt="drawing" style="height:200px"/>
 
-## Getting there
+
+## Getting to the venue
 
 Google maps link: https://goo.gl/maps/Pxddppojkdf6eLzQ8
 
@@ -17,9 +19,14 @@ For less walking, you can also take bus 135 to **Mälarhöjdsbadet** which is ap
 
 You can also book a taxi, for instance with [Taxi Kurir](https://boka.taxikurir.se/en/) or [Taxi Stockholm](https://www.taxistockholm.se/en/).
 
-## About Stockholm
+## About Stockholm and where to stay
 
 The city of Stockholm is approximately 800 years old and has an intricate layout of islands.
+
+There are no hotels around the wedding venue, but it's only half an hour from the city centre. We recommend finding a hotel in the city centre, close to a metro stop.
+
+<img src="https://github.com/xlsrln/wedd/blob/main/stockholm-city-center.png?raw=true" alt="drawing" style="height:200px"/>
+
 
 Looking for something to do in Stockholm? Here's some suggestions:
 
