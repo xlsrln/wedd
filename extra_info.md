@@ -6,7 +6,7 @@ Lyran is a mid-1800s villa south of Stockholm which is nowadays run as a restaur
 
 To see pictures and read more: [page on visit stockholm](https://www.visitstockholm.com/o/konditori-lyran/)
 
-<img src="https://www.visitstockholm.com/media/images/lyran_oredigerad.width-1280.jpg" alt="drawing" style="height:200px"/>
+<img src="https://trippa.se/sites/default/files/styles/iphone_trip/public/hagersten-konditori-lyran-1800-1200-94_0.jpg?itok=IC17sYUf" alt="drawing" style="height:300px"/>
 
 
 ## Getting to the venue
