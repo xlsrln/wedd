@@ -29,6 +29,10 @@ We know many of our guests are travelling far (and we live in a small flat) so w
 However, if you want to support the party and our honeymoon, or donate to a charity, that would be greatly appreciated. 
 We will be making a donation to [Axel’s father’s memorial fund](https://www.cancerfonden.se/insamlingar/anders-hulterstroms-minne) at Cancerfonden. 
 
+### Got a speech?
+
+If you have something to say or do or show please contact our dear toastmaster Innokentij
+
 ### Other questions about Sweden or Stockholm?
 
 See our [information page](extra_info.md).
