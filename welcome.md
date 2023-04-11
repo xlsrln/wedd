@@ -10,9 +10,9 @@ Please take a moment to fill in [this RSVP form](https://forms.gle/RiEzDVEoVMt6c
 
 ### Time and place
 
-The event will take place at **Konditori Lyran** on the first of July 2023. Map link: [google maps](https://goo.gl/maps/Pxddppojkdf6eLzQ8)
+The event will take place at **Konditori Lyran** on the **first of July 2023**. Map link: [google maps](https://goo.gl/maps/Pxddppojkdf6eLzQ8)
 
-The event will start at 17:00 with a welcome drink and ceremony outside, followed by dinner and festivities inside.
+The event will start at **17:00** with a welcome drink and ceremony outside, followed by dinner and festivities inside.
 
 Read more on our page for [practical information](extra_info.md).
 
