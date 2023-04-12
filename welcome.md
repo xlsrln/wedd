@@ -6,7 +6,7 @@ We’re happy to invite you to celebrate with us!
 
 ### RSVP
 
-Please take a moment to fill in [this RSVP form](https://forms.gle/RiEzDVEoVMt6cr4t6). It helps a lot with the organisation!
+Please take a moment to fill in [this RSVP form](https://forms.gle/RiEzDVEoVMt6cr4t6), latest 1st June. It helps a lot with the organisation!
 
 ### Time and place
 
@@ -31,7 +31,7 @@ We will be making a donation to [Axel’s father’s memorial fund](https://www.
 
 ### Got a speech?
 
-If you have something to say or do or show please contact our dear toastmaster Innokentij
+If you have something to say or do or show please contact our dear toastmaster Innokentij.
 
 ### Other questions about Sweden or Stockholm?
 
