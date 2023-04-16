@@ -31,8 +31,8 @@ We will be making a donation to [Axel’s father’s memorial fund](https://www.
 
 ### Got a speech?
 
-If you have something to say or do or show please contact our dear toastmaster Innokentij.
+If you have something to say or do or show please contact our dear toastmaster Innokentij at [toastmaster@sarl.in](mailto:toastmaster@sarl.in).
 
-### Other questions about Sweden or Stockholm?
+### Other questions?
 
-See our [information page](extra_info.md).
+See our [information page](extra_info.md) or email us at [wedding@sarl.in](mailto:wedding@sarl.in).
