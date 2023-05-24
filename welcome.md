@@ -12,7 +12,7 @@ Please take a moment to fill in [this RSVP form](https://forms.gle/RiEzDVEoVMt6c
 
 The event will take place at **Konditori Lyran** on the **first of July 2023**. Map link: [google maps](https://goo.gl/maps/Pxddppojkdf6eLzQ8)
 
-The event will start at **17:00** with a welcome drink and ceremony outside, followed by dinner and festivities inside.
+The event will start at **17:00** with a welcome drink and ceremony outside, followed by dinner and festivities inside.  
 
 Read more on our page for [practical information](extra_info.md).
 
@@ -24,10 +24,9 @@ The ceremony will be held outside, so be aware that pleasant temperatures and cl
 
 ### Gifts
 
-We know many of our guests are travelling far (and we live in a small flat) so we don’t expect any gifts. 
+We know many of our guests are travelling far (and we live in a small flat) so we don’t expect any gifts.
 
-However, if you want to support the party and our honeymoon, or donate to a charity, that would be greatly appreciated. 
-We will be making a donation to [Axel’s father’s memorial fund](https://www.cancerfonden.se/insamlingar/anders-hulterstroms-minne) at Cancerfonden. 
+However, if you would like to make a contribution towards our honeymoon to Iceland, that would be greatly appreciated. (Swish 0793483369 or contact us for our bank details.) We will donate a portion of any contributions towards [Axel’s father’s memorial fund](https://www.cancerfonden.se/insamlingar/anders-hulterstroms-minne) at Cancerfonden. 
 
 ### Got a speech?
 
